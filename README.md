@@ -8,5 +8,5 @@
 
 -🎮No tempo livre gosto de jogar(Valorant, Euro Truck, Rocket League e etc.)🎮
 
-![](https://tenor.com/pt-BR/view/dancinha-comemorando-vai-vai-vai-palmeiras-campe%C3%A3o-brasileiro-gif-11783478198034605001)
-
+![](https://media1.tenor.com/m/o4dS_VRpo8kAAAAd/dancinha-comemorando.gif)
+![](https://media.tenor.com/r0R0N3dI3kIAAAAM/dancing-cat-dance.gif)
